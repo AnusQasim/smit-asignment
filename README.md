@@ -1,1 +1,1 @@
-# smit-aiignment
+# smit-asignment
